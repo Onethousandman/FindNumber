@@ -1,2 +1,1 @@
-
-![a426472b-8bf8-4fe9-b8b6-6aed98751a57](https://github.com/user-attachments/assets/18686c16-483d-4eeb-b6b2-10fe13a92d72)
+![Снимок экрана 2024-10-08 в 01 30 34](https://github.com/user-attachments/assets/0c488a8c-ccce-4b1d-a51c-aaa0cd3fd364)
